@@ -1,1 +1,1 @@
-This is the hompage for all the games i have made. Just click on an image that looks like a good game and play it.
+This is the hompage for all the games i have made. Just click on an image that looks like a good game and play it
